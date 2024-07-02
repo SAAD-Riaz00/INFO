@@ -1,2 +1,2 @@
 # INFO
-creating to get info
+I HAVE TO GET INFORMATION
